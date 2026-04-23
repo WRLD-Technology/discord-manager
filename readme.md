@@ -1,7 +1,1 @@
-# WRLD TOKEN SUITE 
-## USE THE LINK BELOW TO DOWNLOAD
-https://limewire.com/d/9HuMf#sx8OpfcYJI
-
-
-# SUPPORT
-## create a issue and we'll respond in 1-4 hours 
+# We nmoved to wv3.site < Check out our web for downloads, or components to build
